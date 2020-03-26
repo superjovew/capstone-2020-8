@@ -113,6 +113,8 @@ E-mail : miyu2095@gmail.com
 E-mail : ghdfudrl8@naver.com
 ```
 
+<img align="left" width="15%" height="15%" img src="./Image/Profile_SHAOJAIWEI.JPG.jpg" />
+
 ```
 소가위 
 
